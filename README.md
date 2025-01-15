@@ -25,6 +25,6 @@ To make impactful contributions to the **web ecosystem** by creating better tool
 ---
 
 🤝 **Let’s Connect**: I’d love to collaborate and share ideas with like-minded developers.  
-💬 **Reach Me**: [Add your email or social media links here]  
+💬 **Reach Me**: [Email](dltlghkd930217@gmail.com)  
 
 ✨ **Let’s learn, grow, and create something amazing together!** 💻💖  
